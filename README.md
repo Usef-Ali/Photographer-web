@@ -1,3 +1,2 @@
-![Web image](![Photographer](https://github.com/Usef-Ali/Photographer-web/assets/152383333/8fc2220c-4682-4e42-a6fe-1aef51d40884)
-)
+![Web image](![Photographer JPG](https://github.com/Usef-Ali/Photographer-web/assets/152383333/23b49589-cea0-4cbb-882b-7e118067ea9d)
 )
